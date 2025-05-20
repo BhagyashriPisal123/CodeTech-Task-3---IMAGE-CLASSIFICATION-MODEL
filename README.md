@@ -19,3 +19,7 @@ Mentor : Neela Santosh Kumar
 # Output
 
 ![Screenshot (1071)](https://github.com/user-attachments/assets/9cb3f899-d6ac-4fb9-88f7-e9764e7b7015)
+![Screenshot (1072)](https://github.com/user-attachments/assets/632e284b-a23b-417d-9fa0-d14e8fa30bed)
+![Screenshot (1073)](https://github.com/user-attachments/assets/8d2a7386-06cb-4848-9db6-8bf0779a9023)
+
+
